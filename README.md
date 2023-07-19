@@ -1,0 +1,2 @@
+# TradingviewCracker
+tradingview
